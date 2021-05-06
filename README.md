@@ -2,7 +2,7 @@
 Keep an eye on your environmental footprint with a dynamic and personalised work of art
 
 ## Abstract
-Use a dynamic NFT in a modern and elegant digital frame to represent users' environmental impact and push them towards a more eeco-friendly way of life.
+Use a dynamic NFT in a modern and elegant digital frame to represent users' environmental impact and push them towards a more eco-friendly way of life.
 
 ## Description
 Educating people to the dangers of overconsumption is a really hard topic. For decades scientists have been warning us on the risks and challenges environmental problems are posing us now and will keep growing in the next future.
